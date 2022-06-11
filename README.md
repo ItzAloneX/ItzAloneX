@@ -1,4 +1,4 @@
-👋🏻 Hey My Name Is Alone X
+👋🏻 Hi My Name Is Alone X
 ==============================
    Codes Learner From India 🇮🇳.Your Mind Is Programmable. If You're Not Programming Your Mind, Else Will Program It For You.
 
